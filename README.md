@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>Hola! Soy Sebastián Achondo, alumno de 5to año en ingeniería civil industrial con mención en TI de la Universidad Católica de Chile 🇨🇱<br>
+<br>🇨🇱<br>
 
 
 ## 🌐 Socials:
